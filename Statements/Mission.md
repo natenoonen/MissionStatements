@@ -3,7 +3,7 @@
 2. Embody and share my encouraging and enabling **hope** in things I can see and those I cannot.
 3. Give and receive beautiful and sacrificial **love** between myself and my communities.
 
-***To fulfill this I will:**
+**To fulfill this I will:**
 
 1. **Invest in myself first:**
 	1. **Make plans, set goals, and be flexible:** Create realistic plans using my EPT focusing on the process and the results. Laugh, think and cry every day to practice holistic health. Start with seventh generation thinking considering impacts beyond my own lifespan. Recognize that planning is critical and plans are worth much less.
