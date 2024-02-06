@@ -9,7 +9,7 @@
 6. We are servants and members of our communities so that we demonstrate our love through commitment, consistency, and the giving and receiving of effort, gifts and talents.
 
 ## Affirmations
-1. We validate and recognize the boundless differences Nate, Kimmy, Charlie and Jane bring to the family each moment.
+1. We validate and recognize the boundless differences Nate, Kimmy, Charlie and Jane bring to our family each moment.
 2. We trust that by trying to live out this mission we will be united in purpose.
 3. We believe that through this unity, we will make a meaningful and positive impact on each other and our communities.
 
